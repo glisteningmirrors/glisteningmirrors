@@ -1,7 +1,7 @@
 
 <br><p align="center"><img src="https://files.catbox.moe/ly4b5t.png"/>
 <br><p align="center">꒰ㅤXanderㅤ/ㅤGlisten ౨ৎㅤ꒱
-<br><p align="center">He/Him  TAKEN  ✚  17 Y.O
+<br><p align="center">He/Him  single  ✚  17 Y.O
 <br><p align="center">𐔌ྀ ‧ 𐙚ྀㅤBisexualㅤ,,ㅤfictkinㅤ,,ㅤdoubles ok!ㅤ♡
 <br><p align="center">  ࣪₊ ꒰ ঌ   [spacehey](https://spacehey.com/glisteningmirror) . .     ♡   multishipper! 𓂃 ִֶָ
 <br><p align="center">[@sw33tsug4rcookie](https://github.com/sw33tsug4rcookie) is a giant faggot, never even attempt to talk to this person, i did not talk to you face to face because i do not do good with confrontation because im already a very agressuve person, which is why i decided to say this in my readme instead of fighting. i made the descision since you said i was not allowed to play shrimpo you do not seem like you care for me. this hurt me deeply as you know my love for shrimpo. it hurtme deeply that you would also not allow me to use my coal and brick trinket combo. as this is my comfort trinkets. please never interact with me again.
