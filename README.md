@@ -1,5 +1,5 @@
 
-<br><p align="center"><img src="https://cdn.discordapp.com/attachments/1336197462863646833/1498102630365401128/Untitled43_20260426192412.png?ex=69eff04c&is=69ee9ecc&hm=4c0807c92a65bec17a95aa5a32eed4b3d74020813892e9d9db02ff27df657624&"/>
+<br><p align="center"><img src="https://files.catbox.moe/eflt2v.png"/>
 <br><p align="center">⑅   Xander / Glisten  ♡   ₊ 
 <br><p align="center">      ✦   he / him   ،   17   : 🏳️‍⚧️
 <br><p align="center">     ∿    fictkin + selfshipper ,, doubles ✅
