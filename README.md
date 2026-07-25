@@ -1,7 +1,9 @@
-<br><p align="center"><img src="https://64.media.tumblr.com/f4ad3a5db55184de662f5a33385a9da2/5112cb9f8ef8ffa2-8f/s540x810/d59439a87782dd833af9456747e14ee78e415411.pnj"/>
-<br><p align="center">${\textsf{\color{#e6eaff}(๑´>᎑<)}}$ ${\textsf{\color{#d5dcff}Xander}}$  ${\textsf{\color{#bae0ff}—}}$ ${\textsf{\color{#a8c9ff}Glisten}}$
-<br><p align="center"><img src="https://64.media.tumblr.com/32c65eea5f2eedec07737667681bc597/db7ce6708c01e3ab-83/s75x75_c1/1e58271c4a5c1a1709de0e95e497fd5e51a0eea4.gifv"/> ${\textsf{\color{#a8c9ff}.}}$ ${\textsf{\color{#99acff}he / him}}$  ${\textsf{\color{#8ca2ff}𑣲.}}$  ${\textsf{\color{#758ffe}Fictkin}}$
-<br><p align="center">${\textsf{\color{#5a79ff}(＾ω＾=)}}$ ${\textsf{\color{#405bd3}selfshiper}}$ <img src="https://64.media.tumblr.com/84f06221bd523a07c364463c7c6993cf/db7ce6708c01e3ab-51/s75x75_c1/540b6dd0118fe384c4e4f9af79fc0c2d22e225a2.gifv"/> ${\textsf{\color{#2843b9}doubles iwc}}$
-<br><p align="center">${\textsf{\color{#152c90}You ACTUALLY changed !}}$
 <br><p align="center">[![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fglisteningmirrors%2Fglisteningmirrors&label=%E1%AF%93%E2%98%85stars&labelColor=%232843b9&countColor=%23e6eaff&style=plastic)](https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fglisteningmirrors%2Fglisteningmirrors)
-<img src="https://64.media.tumblr.com/a52b2138072d30cb1c78b9392ae1d3e8/47f2b58905b47fc3-9c/s2048x3072/5cbdc63d62d2011cad610ea381a129796f30e9b7.gifv"/>
+<br><p align="center"><img src="https://64.media.tumblr.com/d53c45f0413a9345e06f79fb5c607fa6/38bc6c24deb11497-17/s1280x1920/2fcfabaee8e836994e07400ee513b8770aabef83.pnj"/>
+<br><p align="center">${\textsf{\color{#1C2F81}(๑´>᎑<)}}$ ${\textsf{\color{#223182}Xander}}$  ${\textsf{\color{#4C4489}—}}$ ${\textsf{\color{#554A8A}Glisten}}$
+<br><p align="center"><img src="https://64.media.tumblr.com/75a1dfbf75aaca6fdcda19aebaeb8f45/4ae708fa88fd6797-36/s75x75_c1/4c8487d86649971e14dd6bca8f8d9b70ae324c78.gifv"/> ${\textsf{\color{#70568F}.}}$ ${\textsf{\color{#7B5B91}he / him}}$  ${\textsf{\color{#906495}𑣲.}}$  ${\textsf{\color{#AA7198}Fictkin}}$
+<br><p align="center">${\textsf{\color{#CE809E}(＾ω＾=)}}$ ${\textsf{\color{#E58BA1}selfshiper}}$ <img src="https://64.media.tumblr.com/542158495701240479aa2fdb5c485c2c/fecbcebcddfc530b-87/s75x75_c1/c6bc7844019615364bdee968d560520b5ab35582.gifv"/> ${\textsf{\color{#FF97A6}doubles iwc}}$
+<br><p align="center">${\textsf{\color{#ff7688}questioning cupioromantic}}$
+<br><p align="center"><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/ae0907e4-b234-4031-a0a0-f27914585986" /><img width="99" height="56" alt="image" src="https://64.media.tumblr.com/440a8469858b9e2081af5611566ee6b3/a21e530e7927fc23-a0/s1280x1920/f95e1cb3decc48e887bd6b59a51bc103e64d46de.pnj" /><img width="99" height="56" alt="image" src="https://64.media.tumblr.com/2729f8bd5ce93781cfb8f7be997320d9/a21e530e7927fc23-10/s1280x1920/c25e74c84690a064e6d99d46d5ab45502b024292.pnj" />
+
+<img src="https://64.media.tumblr.com/ce0c7cabf769ef27f8ab196a8376dd65/38bc6c24deb11497-e0/s1280x1920/e31bcf163000f9dcc92e1df3e56b51a09fe3ae47.pnj"/>
