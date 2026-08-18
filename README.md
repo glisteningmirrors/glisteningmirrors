@@ -1,7 +1,14 @@
-<br><p align="center">[![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fglisteningmirrors%2Fglisteningmirrors&label=%E1%AF%93%E2%98%85stars&labelColor=%232843b9&countColor=%23e6eaff&style=plastic)](https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fglisteningmirrors%2Fglisteningmirrors)
-<br><p align="center"><img src="https://64.media.tumblr.com/d53c45f0413a9345e06f79fb5c607fa6/38bc6c24deb11497-17/s1280x1920/2fcfabaee8e836994e07400ee513b8770aabef83.pnj"/>
-<br><p align="center">${\textsf{\color{#1C2F81}(๑´>᎑<)}}$ ${\textsf{\color{#223182}Xander}}$  ${\textsf{\color{#4C4489}—}}$ ${\textsf{\color{#554A8A}Glisten}}$
-<br><p align="center"><img src="https://64.media.tumblr.com/75a1dfbf75aaca6fdcda19aebaeb8f45/4ae708fa88fd6797-36/s75x75_c1/4c8487d86649971e14dd6bca8f8d9b70ae324c78.gifv"/> ${\textsf{\color{#70568F}.}}$ ${\textsf{\color{#7B5B91}he / him}}$  ${\textsf{\color{#906495}𑣲.}}$  ${\textsf{\color{#AA7198}Fictkin}}$
-<br><p align="center">${\textsf{\color{#CE809E}(＾ω＾=)}}$ ${\textsf{\color{#E58BA1}selfshiper}}$ <img src="https://64.media.tumblr.com/542158495701240479aa2fdb5c485c2c/fecbcebcddfc530b-87/s75x75_c1/c6bc7844019615364bdee968d560520b5ab35582.gifv"/> ${\textsf{\color{#FF97A6}doubles iwc}}$
+
+<br><p align="center"> ${\textsf{\color{#ff8aba}Nobody's perfect they say... I'm the proof they're wrong!}}$
+<br><p align="center"><img src="https://64.media.tumblr.com/1f1375175f9d320d1a7ff18000a0bf96/779f0f85f0be5232-fb/s500x750/0c82c44e5714537dd67ae61b9bc0930d2f0ed58a.pnj"/>
+<br><p align="center">[![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fglisteningmirrors%2Fglisteningmirrors&label=%E1%AF%93%E2%98%85stars&labelColor=%23ff66a5&countColor=%23e6eaff&style=plastic)](https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fglisteningmirrors%2Fglisteningmirrors)
+<br><p align="center">${\textsf{\color{#ffd1e4}𓈒 ۫🪞      ⋮     Xander / Glisten    ɞ     ༷ ⎯⎯ }}$
+<br><p align="center">${\textsf{\color{#fcb1d0} ݁ ˖ 𓎢۫𓎡 ༷  He/Him , Male , 17  ﹙♡﹚⊹}}$
+<br><p align="center"><img src="https://64.media.tumblr.com/e77224caa3c07c21f3c88ec119bb7726/7a529165aa83d248-0f/s1280x1920/3296f87c46661d16cae9309313294b1575ec1897.pnj"/>
 <br><p align="center"><img width="99" height="56" alt="image" src="https://64.media.tumblr.com/4c7a8df455192f956af515a9188ba834/9595c153e0b57ea0-f2/s100x200/f9152767ae51cbb64b447588e90a5559a5ee2186.gifv" /><img width="99" height="56" alt="image" src="https://64.media.tumblr.com/c94ca259a05180fa42e32bb14c97e472/1ba44b0b146843b4-28/s100x200/39f39b242f8a9d7a7a198d91189bf4b4daabce48.gifv" />
-<br><p align="center"><img src="https://64.media.tumblr.com/ce0c7cabf769ef27f8ab196a8376dd65/38bc6c24deb11497-e0/s1280x1920/e31bcf163000f9dcc92e1df3e56b51a09fe3ae47.pnj"/>
+<br><p align="center">${\textsf{\color{#ffa1c8}♡⠀𓈒⠀˙🎀 𓈒ִ݁ horrible at interacting with others , iwc 　  (｡>﹏<)}}$
+<br><p align="center">${\textsf{\color{#ff91bf}✦ ₊      Multishipper , Yumeshipper    ⬦}}$
+<br><p align="center">${\textsf{\color{#ff75af}Glisten fictionkin , Boxten yume      ◌      doubles dni     }}$
+<br><p align="center">${\textsf{\color{#ff63a5}Vee!! Hellooo oh bestest closest friend of mine whom I care for deeply!}}$
+<br><p align="center"><img src="https://64.media.tumblr.com/bd0125bb583c5546f54ab6a19d2a07ea/776e9d6fe85942f4-e3/s1280x1920/54c057f316533dab90e5b49e1c8195b3142fcb43.pnj"/>
+<br><p align="center">${\textsf{\color{#abff8a}i luv my vee version 1 hes d awwesomest in d wor;ld <3 !!!!!!!!!!!!!!!!!}}$
