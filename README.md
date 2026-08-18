@@ -1,5 +1,5 @@
 
-<br><p align="center"> ${\textsf{\color{#ff8aba}Nobody's perfect they say... I'm the proof they're wrong!}}$
+<br><p align="center"> ${\textsf{\color{#ff8aba}Nobody's perfect they say . .  I'm the proof they're wrong !}}$
 <br><p align="center"><img src="https://64.media.tumblr.com/1f1375175f9d320d1a7ff18000a0bf96/779f0f85f0be5232-fb/s500x750/0c82c44e5714537dd67ae61b9bc0930d2f0ed58a.pnj"/>
 <br><p align="center">[![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fglisteningmirrors%2Fglisteningmirrors&label=%E1%AF%93%E2%98%85stars&labelColor=%23ff66a5&countColor=%23e6eaff&style=plastic)](https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fglisteningmirrors%2Fglisteningmirrors)
 <br><p align="center">${\textsf{\color{#ffd1e4}𓈒 ۫🪞      ⋮     Xander / Glisten    ɞ     ༷ ⎯⎯ }}$
