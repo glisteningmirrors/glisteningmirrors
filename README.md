@@ -11,3 +11,4 @@
 <br><p align="center">${\textsf{\color{#ff63a5}" Vee!! Hellooo oh bestest closest friend of mine whom I care for deeply ! "}}$
 <br><p align="center"><img src="https://64.media.tumblr.com/bd0125bb583c5546f54ab6a19d2a07ea/776e9d6fe85942f4-e3/s1280x1920/54c057f316533dab90e5b49e1c8195b3142fcb43.pnj"/>
 <br><p align="center">${\textsf{\color{#abff8a}i luv my vee version 1 hes d awwesomest in d wor;ld <3 !!!!!!!!!!!!!!!!!}}$
+<br><p align="center"><img src="https://64.media.tumblr.com/be76f909e559e0f4e502d1e2fbb4c66c/153210de505ed164-9c/s640x960/4e8384e342197e8768f68c82e0738bdf96d8cd83.pnj"/>
