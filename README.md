@@ -7,6 +7,7 @@
 <br><p align="center">${\textsf{\color{#775aad}GLISTEN AND BRUSHA FICTKIN}}$
 <br><p align="center">${\textsf{\color{#5f4491}IM A FRIENDLY PERSON I PROMISE!! C+H ALWAYS WELCOME!}}$
 <br><p align="center">${\textsf{\color{#4b3478}ANTI-HARASSMENT, i am not profic or a darkshipper}}$
+<br><p align="center">${\textsf{\color{#db214a}profic/ship and darkship dni please :(}}$
 <br><p align="center"><img src="https://64.media.tumblr.com/04741e9adb20644058ac8a008e3eb561/a2893c1d9d88c9cf-b3/s100x200/8e60143f0009e2b6a53e7791aa6558a1e9889896.pnj"/><img src="https://64.media.tumblr.com/79f74c3b08164d2b98304c0c9b1eb132/a2893c1d9d88c9cf-90/s100x200/3b7c490038a9c1d820b74a96fbd9370422d1ce81.pnj"/>
 <br><p align="center"><img src="https://64.media.tumblr.com/1dfea716793c8ec9c2d7a6184df5def1/a8356d038e405f4c-47/s1280x1920/f9ca5a50e931bb635509d851f580b88d86dd3922.pnj"/>
 <br><p align="center">${\textsf{\color{#ff69c3}i lov e my bfie so mach mwahg mwah}}$
