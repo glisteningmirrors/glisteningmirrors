@@ -1,5 +1,5 @@
 
-<br><p align="center">[![Typing SVG](https://readme-typing-svg.demolab.com?font=Henny+Penny&duration=2000&pause=300&color=765EA4&center=true&width=435&lines=THINGS+THAT+I+WANT;THIS+HAPPILY+EVER+AFTER;YOU+CHOKE+ON+YOUR+WORDS;BUT+YOU+SWALLOW+THEM+FASTER;I+SLEEP+ON+THE+COUCH;WHILE+YOURE+PASSED+OUT+IN+THE+BACK;JUST+WANT+YOU+TO+BE+MY;EMERGENCY+CONTACT)](https://git.io/typing-svg)
+<br><p align="center">[![Typing SVG](https://readme-typing-svg.demolab.com?font=Henny+Penny&pause=600&color=FE4F72&center=true&vCenter=true&width=435&lines=YOU+GAVE+ME+THE+REASON;YOU+GAVE+ME+CONTROL;I+GAVE+YOU+MY+PURITY;AND+MY+PURITY+YOU+STOLE;YOU+THINK+I+WOULDN'T+RECOGNIZE;THIS+COMPROMISE%3F;AM+I+JUST+TOO+STUPID+TO+REALIZE%3F)](https://git.io/typing-svg)
 <br><p align="center"><img src="https://64.media.tumblr.com/50d48263b5f0232c6fbe3952cc7ee732/eb81e7669622f509-b6/s400x600/7662098bcdc92684c2353fadf3a167aff28f4a39.pnj"/>
 <br><p align="center">[![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fglisteningmirrors%2Fglisteningmirrors&label=%E1%AF%93%E2%98%85stars&labelColor=%23765ea4&countColor=%23e6eaff&style=plastic)](https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fglisteningmirrors%2Fglisteningmirrors)
 <br><p align="center">${\textsf{\color{#9479c7}XANDER / GLISTEN}}$
