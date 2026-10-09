@@ -11,7 +11,7 @@
 <br><p align="center"><img src="https://64.media.tumblr.com/04741e9adb20644058ac8a008e3eb561/a2893c1d9d88c9cf-b3/s100x200/8e60143f0009e2b6a53e7791aa6558a1e9889896.pnj"/><img src="https://64.media.tumblr.com/79f74c3b08164d2b98304c0c9b1eb132/a2893c1d9d88c9cf-90/s100x200/3b7c490038a9c1d820b74a96fbd9370422d1ce81.pnj"/>
 <br><p align="center"><img src="https://64.media.tumblr.com/1dfea716793c8ec9c2d7a6184df5def1/a8356d038e405f4c-47/s1280x1920/f9ca5a50e931bb635509d851f580b88d86dd3922.pnj"/>
 <br><p align="center">${\textsf{\color{#ff69c3}i lov e my bfie so mach mwahg mwah}}$
-<br><p align="center"><img src="https://64.media.tumblr.com/be76f909e559e0f4e502d1e2fbb4c66c/153210de505ed164-9c/s640x960/4e8384e342197e8768f68c82e0738bdf96d8cd83.pnj"/>
+<br><p align="center"><img src="https://64.media.tumblr.com/dba0ac2cb6488fb9e33ace94f8c9e10f/e8bc9854ef6bade1-c5/s640x960/748c05b76470867a42936253dfc849b03709e84c.pnj"/>
 <br><p align="center">${\textsf{\color{#ff69c3}ty!!}}$[@Ponytowns-ships](https://github.com/Ponytowns-ships)
 <br><p align="center"><img src="https://64.media.tumblr.com/3dd050cb8db7b3e0df2f03eff6c43d9e/e8bc9854ef6bade1-b2/s1280x1920/19067ddeacfb3fd66206d15de37c6d7f7265b884.pnj"/>
-<br><p align="center">${\textsf{\color{#ff69c3}Thanks , I promise I won't break it this time !}}$
+<br><p align="center">${\textsf{\color{#ff69c3}i lov my darling vee <3 !!!!!! hes the most perfectest in d world !!!!!!!!}}$
