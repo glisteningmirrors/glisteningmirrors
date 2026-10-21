@@ -8,7 +8,7 @@
 <br><p align="center">${\textsf{\color{#5f4491}IM A FRIENDLY PERSON I PROMISE!! C+H ALWAYS WELCOME!}}$
 <br><p align="center">${\textsf{\color{#4b3478}ANTI-HARASSMENT, i am not profic or a darkshipper}}$
 <br><p align="center">${\textsf{\color{#db214a}profic/ship and darkship dni please :(}}$
-<br><p align="center">${\textsf{\color{#db214a}as a disclaimer, i am in a fragle mental state atm, iwec at all times, sorry if im snappy/neglectful in friendships}}$
+<br><p align="center">${\textsf{\color{#db214a}as a disclaimer, i am in a fragile mental state atm, iwec at all times, sorry if im snappy/neglectful in friendships}}$
 <br><p align="center"><img src="https://64.media.tumblr.com/e0184de82b89c2c018ed5b22c2dab539/31ae9230e71f53ae-a6/s100x200/bde77132b2d1cbd4eb38785e50dcbdf26e4d7797.pnj"/><img src="https://64.media.tumblr.com/3b4b6b7cf913617065a7edf26918db56/31ae9230e71f53ae-ca/s100x200/bdb706ce91e6b27d6c53cc0651becbc6b9b631fe.pnj"/>
 <br><p align="center"><img src="https://64.media.tumblr.com/dba0ac2cb6488fb9e33ace94f8c9e10f/e8bc9854ef6bade1-c5/s640x960/748c05b76470867a42936253dfc849b03709e84c.pnj"/>
 <br><p align="center">${\textsf{\color{#ff69c3}i lov e my bfie so mach mwahg mwah}}$
