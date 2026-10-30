@@ -4,11 +4,11 @@
 <br><p align="center">[![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fglisteningmirrors%2Fglisteningmirrors&label=%E1%AF%93%E2%98%85stars&labelColor=%23765ea4&countColor=%23e6eaff&style=plastic)](https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fglisteningmirrors%2Fglisteningmirrors)
 <br><p align="center">${\textsf{\color{#9479c7}XANDER / GLISTEN}}$
 <br><p align="center">${\textsf{\color{#8469b8}7TEEN ,, HE + HIM}}$
-<br><p align="center">${\textsf{\color{#775aad}GLISTEN AND BRUSHA FICTKIN}}$
-<br><p align="center">${\textsf{\color{#5f4491}IM A FRIENDLY PERSON I PROMISE!! C+H ALWAYS WELCOME!}}$
-<br><p align="center">${\textsf{\color{#4b3478}ANTI-HARASSMENT, i am not profic or a darkshipper}}$
-<br><p align="center">${\textsf{\color{#db214a}profic/ship and darkship dni please :(}}$
-<br><p align="center">${\textsf{\color{#db214a}as a disclaimer, i am in a fragile mental state atm, iwec at all times, sorry if im snappy/neglectful in friendships}}$
+<br><p align="center">${\textsf{\color{#775aad}i am a glisn and brusha fictkin helo dis is m welcom 2 my beautiful github}}$
+<br><p align="center">${\textsf{\color{#5f4491}ive existed longer den  time itself, dats me, kind a like verity and gubby}}$
+<br><p align="center">${\textsf{\color{#4b3478}meanie weenies dni ok b its hard 4 m to not lash out at peopl if i feel hurt by something}}$
+<br><p align="center">${\textsf{\color{#db214a}tell me, have you seen my darling}}$  [vee](https://github.com/neverwanted2dance)${\textsf{\color{#db214a}???? he would be the most perfectest in the worl d if i didnt exist!!!! (ok kidding hes my everything i lov you rotzi <3))}}$ 
+<br><p align="center">${\textsf{\color{#db214a}im fragile i dont mean 2 be mean if i come off that way , im a bit defensive at tines , who can blame me, being perfect has its consequences!!!!}}$
 <br><p align="center"><img src="https://64.media.tumblr.com/e0184de82b89c2c018ed5b22c2dab539/31ae9230e71f53ae-a6/s100x200/bde77132b2d1cbd4eb38785e50dcbdf26e4d7797.pnj"/><img src="https://64.media.tumblr.com/3b4b6b7cf913617065a7edf26918db56/31ae9230e71f53ae-ca/s100x200/bdb706ce91e6b27d6c53cc0651becbc6b9b631fe.pnj"/>
 <br><p align="center"><img src="https://64.media.tumblr.com/dba0ac2cb6488fb9e33ace94f8c9e10f/e8bc9854ef6bade1-c5/s640x960/748c05b76470867a42936253dfc849b03709e84c.pnj"/>
 <br><p align="center">${\textsf{\color{#ff69c3}i lov e my bfie so mach mwahg mwah}}$
