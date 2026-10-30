@@ -7,7 +7,7 @@
 <br><p align="center">${\textsf{\color{#775aad}i am a glisn and brusha fictkin helo dis is m welcom 2 my beautiful github}}$
 <br><p align="center">${\textsf{\color{#5f4491}ive existed longer den  time itself, dats me, kind a like verity and gubby}}$
 <br><p align="center">${\textsf{\color{#4b3478}meanie weenies dni ok b its hard 4 m to not lash out at peopl if i feel hurt by something}}$
-<br><p align="center">${\textsf{\color{#db214a}tell me, have you seen my darling}}$  [vee](https://github.com/neverwanted2dance)${\textsf{\color{#db214a}???? he would be the most perfectest in the worl d if i didnt exist!!!! (ok kidding hes my everything i lov you rotzi <3))}}$ 
+<br><p align="center">${\textsf{\color{#db214a}tell me, have you seen my darling}}$ [vee](https://github.com/neverwanted2dance)${\textsf{\color{#db214a}???? he would be the most perfectest in the worl d if i didnt exist!!!! (ok kidding hes my everything i lov you rotzi <3))}}$ 
 <br><p align="center">${\textsf{\color{#db214a}im fragile i dont mean 2 be mean if i come off that way , im a bit defensive at tines , who can blame me, being perfect has its consequences!!!!}}$
 <br><p align="center"><img src="https://64.media.tumblr.com/e0184de82b89c2c018ed5b22c2dab539/31ae9230e71f53ae-a6/s100x200/bde77132b2d1cbd4eb38785e50dcbdf26e4d7797.pnj"/><img src="https://64.media.tumblr.com/3b4b6b7cf913617065a7edf26918db56/31ae9230e71f53ae-ca/s100x200/bdb706ce91e6b27d6c53cc0651becbc6b9b631fe.pnj"/>
 <br><p align="center"><img src="https://64.media.tumblr.com/dba0ac2cb6488fb9e33ace94f8c9e10f/e8bc9854ef6bade1-c5/s640x960/748c05b76470867a42936253dfc849b03709e84c.pnj"/>
@@ -15,4 +15,4 @@
 <br><p align="center"><img src="https://64.media.tumblr.com/be76f909e559e0f4e502d1e2fbb4c66c/153210de505ed164-9c/s640x960/4e8384e342197e8768f68c82e0738bdf96d8cd83.pnj"/>
 <br><p align="center">${\textsf{\color{#ff69c3}ty!!}}$[@Ponytowns-ships](https://github.com/Ponytowns-ships)
 <br><p align="center"><img src="https://64.media.tumblr.com/3dd050cb8db7b3e0df2f03eff6c43d9e/e8bc9854ef6bade1-b2/s1280x1920/19067ddeacfb3fd66206d15de37c6d7f7265b884.pnj"/>
-<br><p align="center">${\textsf{\color{#ff69c3}i lov my darling vee <3 !!!!!! hes the most perfectest in d world !!!!!!!!}}$
+<br><p align="center">${\textsf{\color{#ff69c3}youre my everything i love you so very very much my darling <3!!!!!!}}$
