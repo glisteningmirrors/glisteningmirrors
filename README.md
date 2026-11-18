@@ -4,7 +4,7 @@
 <br><p align="center">[![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fglisteningmirrors%2Fglisteningmirrors&label=%E1%AF%93%E2%98%85stars&labelColor=%23765ea4&countColor=%23e6eaff&style=plastic)](https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fglisteningmirrors%2Fglisteningmirrors)
 <br><p align="center">${\textsf{\color{#9479c7}୨୧ —}}$ ${\textsf{\color{#9479c7}XANDER / GLISTEN}}$ ${\textsf{\color{#9479c7}𓂅}}$   ${\textsf{\color{#9479c7}17}}$
 <br><p align="center">${\textsf{\color{#8469b8}HE}}$ ${\textsf{\color{#8469b8}+}}$ ${\textsf{\color{#8469b8}HIM}}$ ${\textsf{\color{#8469b8}♡ֺּׅ𓏽⑅}}$
-<br><p align="center">${\textsf{\color{#775aad}glistn and brusha fictkin helo xanderlings THEY R ME!!!}}$
+<br><p align="center">${\textsf{\color{#775aad}𓎢𓎟𓎡}}$ ${\textsf{\color{#775aad}GAY TRANS FTM}}$ ${\textsf{\color{#775aad}₊˚}}$
 <br><p align="center">${\textsf{\color{#5f4491}INT WIT CAUTION i wil go a littl crazy god friggin help m,e}}$
 <br><p align="center">${\textsf{\color{#5f4491}im a new soul.. NO IM KIDDIGN STOP IM OG!!! IM OG!! SPELL MY GITHUB RITE!!! OG RESEPCT BUTTO}}$
 <br><p align="center">${\textsf{\color{#5f4491}i love myt darling vee OK HE IS. SO CUTE CUTE CUTE}}$
